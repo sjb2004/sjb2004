@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Sumit Bhoir
-**A passionate Full stack Developer || AI\Ml Engineer**
+**A passionate Full stack Developer || AI\ML Engineer**
 
 Email Me 👉 ✉️ **sumitbhoir2211@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 ## 🌐 Socials:
